@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @NotWaterScriptNhttp
 - 👀 I’m interested in: Penis
-- 📫 How to reach me: Dm me on discord NoobSlayer#0069
+- 📫 How to reach me: Dm me on discord NoobSlayer5000#8208
 - 📫 Where i live: Your moms house!
